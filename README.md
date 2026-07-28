@@ -15,14 +15,8 @@ Passaic Emergency Roof provides 24/7 emergency roof repair services in Passaic, 
 
 ## Learn More
 
-Website:
-https://passaicemergencyroof.com/
-
-Skylight Repair:
-https://passaicemergencyroof.com/skylight-window-passaic/
-
-Commercial Roof Repair:
-https://passaicemergencyroof.com/commercial-roof-repair-passaic-nj/
-
-Roof Leak Repair:
-https://passaicemergencyroof.com/roof-leak-repair-passaic-nj/
+- **Website:** https://passaicemergencyroof.com/
+- [Emergency Roof Repair](https://passaicemergencyroof.com/)
+- [Roof Leak Repair](https://passaicemergencyroof.com/roof-leak-repair-passaic-nj/)
+- [Commercial Roof Repair](https://passaicemergencyroof.com/commercial-roof-repair-passaic-nj/)
+- [Skylight Repair](https://passaicemergencyroof.com/skylight-window-passaic/)
